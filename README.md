@@ -1,3 +1,3 @@
-# <font color="Red">ゴルフコード</font>  
+# ゴルフコード  
 
 
